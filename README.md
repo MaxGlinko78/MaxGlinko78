@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... web develop
 - 🌱 I’m currently learning ...JS,WP,PHP,phyton, Rust
 
-- 📫 How to reach me easywebdef@gmail.com
+- 📫 How to reach me forearnings78@gmail.com
 
 
 
